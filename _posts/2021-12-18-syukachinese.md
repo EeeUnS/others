@@ -13,7 +13,7 @@ categories: paper
 
 참고영상 
 
-![Untitled](/images/syukaarmericachinese/Untitled.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled.png)
 
 미국은 중국의 최대 수출국
 
@@ -21,7 +21,7 @@ categories: paper
     - 중국이 컷을때 최대 수혜국은 한국이다
     - 한국은 중국에 영향이 많다.
 
-![Untitled](/images/syukaarmericachinese/Untitled%201.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%201.png)
 
 1등이 뭘까? 다국적기업이 중국에서 생산해서 미국에 수출하는게 크다. 
 
@@ -29,27 +29,27 @@ ex) 아이폰 - 수입품에 세금 메기는것에 팀쿡이 입에 거품물�
 
 그리고 중국입장에서는 미국에 고통을 줄 카드가 별로없다. ⇒ 대항 카드로서 중국이 미국 국채를 조금씩 정리 중
 
-![Untitled](/images/syukaarmericachinese/Untitled%202.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%202.png)
 
 트럼프 : 꼬우면 미국에 공장지으면 되자나
 
 중국이 미국에 수출하는 양이 줄으면 우리나라 수출이 얼마나 타격을 입을까?
 
-![Untitled](/images/syukaarmericachinese/Untitled%203.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%203.png)
 
-![Untitled](/images/syukaarmericachinese/Untitled%204.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%204.png)
 
 대부분 물품들은 중국에서 소비한다. 생각보다 별로 영향을 안받는다.
 
 우리나라는 중국의 내수와 밀접한 연관이 있다.
 
-![Untitled](/images/syukaarmericachinese/Untitled%205.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%205.png)
 
 근데 최근 수입을 많이 줄이는 추세라서 
 
 그래서 대항마로 베트남을 보는 중
 
-![Untitled](/images/syukaarmericachinese/Untitled%206.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%206.png)
 
 다른나라도 중국을 대신한 무역 국가로 동남아를 생각 중
 
@@ -59,7 +59,7 @@ ex) 아이폰 - 수입품에 세금 메기는것에 팀쿡이 입에 거품물�
 
 트럼프 대통령의 후보 공약
 
-![Untitled](/images/syukaarmericachinese/Untitled%207.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%207.png)
 
 실제로 대부분 실천함
 
@@ -69,23 +69,23 @@ ex) 아이폰 - 수입품에 세금 메기는것에 팀쿡이 입에 거품물�
 
 # 지금의 미국 상황
 
-![Untitled](/images/syukaarmericachinese/Untitled%208.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%208.png)
 
 미국은 중국에서는 수입쪽으론 막아놓고(구글,유튜브 등등 모든것을 막음.) 수출만하기에는 불공정하게 느낀다.
 
 # 미국과 중국의 무역 경과
 
-![Untitled](/images/syukaarmericachinese/Untitled%209.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%209.png)
 
-![Untitled](/images/syukaarmericachinese/Untitled%2010.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2010.png)
 
-![Untitled](/images/syukaarmericachinese/Untitled%2011.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2011.png)
 
 수출 규모를 생각했을때 무조건 중국이 불리한 입장임.
 
 중국의 대응
 
-![Untitled](/images/syukaarmericachinese/Untitled%2012.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2012.png)
 
 여기서 구조개혁 : 소련의 멸망을 의미함
 
@@ -93,25 +93,25 @@ ex) 아이폰 - 수입품에 세금 메기는것에 팀쿡이 입에 거품물�
 
 경과 
 
-![Untitled](/images/syukaarmericachinese/Untitled%2013.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2013.png)
 
-![Untitled](/images/syukaarmericachinese/Untitled%2014.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2014.png)
 
 이미 경제적갈등을 넘어 정치적 갈등으로 넘어감.
 
-![Untitled](/images/syukaarmericachinese/Untitled%2015.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2015.png)
 
 냉전이 올 수도있다는 상황.
 
 예전의 한국.  소련이 박살나고 85년에 플라자 합의를 하면서  일본 , 독일이 도끼를 맞고 갔는데 우리나라가 좋았던것은 단지 도끼를 우리나라가 맞지 않았다.
 
-![Untitled](/images/syukaarmericachinese/Untitled%2016.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2016.png)
 
-![Untitled](/images/syukaarmericachinese/Untitled%2017.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2017.png)
 
 미국과의 블록을 형성시에 중국과의 수출을 요구할 수 있는데 이때 중국 수출의존도가 높은 한국입장에서는 매우 큰 부담임.
 
-![Untitled](/images/syukaarmericachinese/Untitled%2018.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2018.png)
 
 ---
 
@@ -119,28 +119,28 @@ ex) 아이폰 - 수입품에 세금 메기는것에 팀쿡이 입에 거품물�
 
 화웨이의 역사
 
-![Untitled](/images/syukaarmericachinese/Untitled%2019.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2019.png)
 
 적극적으로 정부의 푸시를 받고있음
 
-![Untitled](/images/syukaarmericachinese/Untitled%2020.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2020.png)
 
 화웨이가 통신쪽에 독점적인 영향을 끼쳐서 firewall로서 중국의 불공정한 무역거래를 주도하고있음.
 
 ⇒ 
 
-![Untitled](/images/syukaarmericachinese/Untitled%2021.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2021.png)
 
 미국의 화웨이 배제
 
-![Untitled](/images/syukaarmericachinese/Untitled%2022.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2022.png)
 
 공식입장은 아님
 
 중국 수출의존도가 높은 대한민국은 이러나 저러나 답이없는 상황
 
-![Untitled](/images/syukaarmericachinese/Untitled%2023.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2023.png)
 
-![Untitled](/images/syukaarmericachinese/Untitled%2024.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2024.png)
 
-![Untitled](/images/syukaarmericachinese/Untitled%2025.png)
+![Untitled](/others/images/syukaarmericachinese/Untitled%2025.png)
